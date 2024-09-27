@@ -11,10 +11,10 @@ What We Offer:
 • International Delicacies: Explore a world of flavors with gourmet selections from Italy, France, Asia, and more.
 
 Why Shop with Us:
-•Sustainable Practices: We are committed to sourcing responsibly from farms and producers that prioritize environmental stewardship.
-•Handpicked Quality: Every product on our shelves is chosen for its superior taste, quality, and origin.
-•Exclusive Selection: Many of our items are exclusive and hard to find, offering a truly unique shopping experience.
-•Customer-Centric: We strive to create a seamless shopping experience with fast delivery and exceptional customer service.
+• Sustainable Practices: We are committed to sourcing responsibly from farms and producers that prioritize environmental stewardship.
+• Handpicked Quality: Every product on our shelves is chosen for its superior taste, quality, and origin.
+• Exclusive Selection: Many of our items are exclusive and hard to find, offering a truly unique shopping experience.
+• Customer-Centric: We strive to create a seamless shopping experience with fast delivery and exceptional customer service.
 
 
 Indulge your senses and discover the best in gourmet food at Gourmet Grocery—where quality meets passion for food. Shop with us and bring home the world's finest flavors!
